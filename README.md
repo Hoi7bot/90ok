@@ -1,1 +1,0 @@
-# MTS-ISDA-kelas-9A.
